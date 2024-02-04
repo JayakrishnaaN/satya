@@ -1,2 +1,0 @@
-# satya
-Happy birthday satya
